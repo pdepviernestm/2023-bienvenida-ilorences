@@ -10,6 +10,8 @@ Mi legajo es 209.056-9
 
 -Vivi varios años (12) en Zaragoza, España y vivo en Argentina desde 2017 :)
 
--Tengo una perra llamada Nala y es lo mejor que me pasó en la vida :p
+-Tengo una perra llamada Nala y es lo mejor que me pasó en la vida (adjunto foto abajo) :p
+
+![IMG_3765](https://user-images.githubusercontent.com/112730631/230160288-9c38bda5-25b8-42d6-9d74-639805a59b1f.jpg)
 
 -Soy la persona con menos dramas para escuchar música literalmente me gusta todo y siempre me gusta encontrar estilos nuevos.
